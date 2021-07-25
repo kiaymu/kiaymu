@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kiaymu (je ɑr (re)mo)
 - 👀 I’m interested in lѳr niŋ po
-- 🌱 I’m currently learning Javascript
+- 🌱 I’m currently learning JavaScript
 - 💞️ I’m looking to collaborate on lɑŋ gwe jez
 - 📫 How to reach me, di ni sɑ bɑ hɑy lɑ ɑŋ
 - o di ka yay sa i meyl na sulatpriv@pm.me
