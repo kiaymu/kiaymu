@@ -1,5 +1,5 @@
 - ra e a da ma e ᜵ re ad me ᜵ rid mi 
-- 👋 he lo git hub wcrld ᜶ 
+- 👋 he lo Git Hub wcrld ᜶ 
 - hay sa in yo, a hko po ay wa_laq_tu_nay_na_pa_qa_lan
 - ☕ di me jo na e eq gan yoq mag a ral 
 - 🌱 sa qay on hoy ma in tin di han mu na 
